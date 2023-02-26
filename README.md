@@ -1,1 +1,1 @@
-# researcherhojin.github.io.github.io
+# researcherhojin.github.io
